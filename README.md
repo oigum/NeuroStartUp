@@ -7,4 +7,9 @@
 2. Низкая цена
 
 Я учусь в Нетологии
+
 I love study
+
+I love fruts
+
+HEllO
